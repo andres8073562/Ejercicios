@@ -12,3 +12,7 @@ Intrucciones:
  Hacer pilates para mejorar la flexibilidad.
  Practicar tai chi.
  Consistencia en el estiramiento.
+Conejos:
+Caliente
+Haz estiramineto ants
+Respirar profundo
