@@ -1,2 +1,5 @@
+s
+
 Pilates:
 El pilates es un sistema de entrenamiento físico y mental que fortalece el cuerpo y la mente. Se basa en la repetición de ejercicios de bajo impacto que trabajan los músculos centrales.
+Benwficios
