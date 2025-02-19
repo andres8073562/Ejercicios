@@ -5,3 +5,9 @@ Tonifica el cuerpo. ...
 Bajo riesgo de lesiones. ...
 Contras de la natación. ...
 Cuidado en temporada de frío.
+Instrucciones:
+Aprender a nadar
+No nadar solo
+Que los niños estén supervisados por un adulto
+Usar un chaleco salvavidas
+No bucear
