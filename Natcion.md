@@ -11,3 +11,10 @@ No nadar solo
 Que los niños estén supervisados por un adulto
 Usar un chaleco salvavidas
 No bucear
+Consejos:
+Mantente cerca de la orilla y nada en áreas designadas.
+Usa chaleco salvavidas si eres un nadador inexperto.
+No nades cuando haya pronóstico de rayos.
+Toma un descanso si te sientes frío, cansado o hambriento.
+Vigila a tus compañeros nadadores.
+Aprende a reconocer los síntomas de ahogamiento.
