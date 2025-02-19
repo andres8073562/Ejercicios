@@ -8,3 +8,8 @@ Previene las fracturas óseas.
 Previene catarros y enfermedades.
 Reduce el dolor de espalda y articulaciones.
 Reduce las molestias relacionadas con la artrosis.
+Instruccions:
+Respira
+Clienta
+Descansa
+Come Proteina
