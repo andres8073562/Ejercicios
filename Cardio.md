@@ -1,21 +1,21 @@
 
-Cadio:
+#Cadrio:
 
 EL cardio una practica que sirve para redorzar el corazon.
 
-Beneficios:
+#Beneficios:
 
 Fortalece el corazon y los pulmones
 Reduce el riesgo de un infarto
 Tonifica los musculos
 
-Instrucciones:
+#Instrucciones:
 
 Haz ejercicios cortos y movidos que no impacten
 Centra el calentamiento en los grandes grupos musculares
 Aumenta la velocidad e intensidad poco a poco
 
-Consejos:
+#Consejos:
 
 Calienta con estiramientos y ejercicios de movilidad
 Empieza con sesiones cortas y aumenta la duración e intensidad
