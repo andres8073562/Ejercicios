@@ -5,3 +5,10 @@ Mejora la fuerza en general
 Aumenta la resistencia cardiovascular y muscular
 Mejora la salud mental
 Variedad y motivacion
+INstrucciones:
+MOvilidad articular
+Cardio ligero
+Ejercicios dinamicos
+Respiracion
+Estabilidad
+
