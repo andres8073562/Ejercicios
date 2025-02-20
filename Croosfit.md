@@ -11,4 +11,7 @@ Cardio ligero
 Ejercicios dinamicos
 Respiracion
 Estabilidad
+Consejos:
+Aprende la tecnica primero y el peso despues
+Escucha tu cuerpo
 
